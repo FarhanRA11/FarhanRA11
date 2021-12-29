@@ -1,4 +1,4 @@
-### Halo!! 
+### Halo!!👋👋
 ### Kenalan dulu yukk,
 
 - 📆 Saat ini berusia 18 tahun
