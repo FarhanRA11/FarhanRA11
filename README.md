@@ -1,9 +1,9 @@
 ## Halo!!👋👋
 ### Kenalan dulu yukk,
 
-- 📆 Saat ini berusia 18 tahun
-- 📖 Berkuliah di Teknik Elektro Universitas Gadjah Mada
-- 🏠 Asal dari DIY, Indonesia
-- 📫 Kontak email : farhanrizal11@gmail.com
+- 📆 I'm 18 y.o. rn
+- 📖 Electrical and Information Engineering Universitas Gadjah Mada
+- 🏠 DIY, Indonesia
+- 📫 farhanrizal11@gmail.com
 
-### [klik di sini](https://www.youtube.com/watch?v=a3Z7zEc7AXQ)
+### [more about me](https://www.youtube.com/watch?v=a3Z7zEc7AXQ)
