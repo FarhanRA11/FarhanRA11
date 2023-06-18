@@ -1,7 +1,6 @@
 ## Hello!!👋👋
-### This is Farhan,
 
-- 📆 I'm 20 y.o. rn
+- 📆 20 y.o.
 - 📖 Electrical and Information Engineering Universitas Gadjah Mada
 - 🏠 DIY, Indonesia
 - 📫 farhanrizal11@gmail.com
